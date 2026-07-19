@@ -1,2 +1,0 @@
-# ptepractice
-PRIVACY POLICY
